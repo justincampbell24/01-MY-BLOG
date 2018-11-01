@@ -1,1 +1,10 @@
+# Feeding Cows in the Summer and Winter
+
+Feeding cattle is obviously important to their survival, but what is fed to cows can make a huge difference in the speed and amount of weight gains. We feed different rations to different groups of cattle throughout the year. 
+
+For weaned calves, we feed a mixed ration of DDG, another grain, corn silage, and baleage. Mixing rations is done in a Jaylor mixer. It can chop up bales process ingredients to a more digestible size. The mixer also mixes the ingredients until they are evenly distributed throughout the ration. We usually feed the same ration or a similar mix to the herd bulls too. Weaned calves start out with a product called Cattle Charge. This feed helps wean calves quicker and is gentler on their digestive system. We supplement all diets that include grain with dry hay. Commonly we use Bermuda or Brome dry hay to feed to weaned calves. Once the calves are weaned, then they are also allowed to graze in a small pasture. 
+
+We only graze cows during the summer, typically on fescue or native grass pastures. Fescue grows well in Southwest Missouri, a common pasture grass on ranches. We rotate our herds through the pastures. A good rule of thumb that we use is to move the cows to a new pasture once the grass has been eaten down to three inches in height. This protects the grass from overgrazing. We try to plan how the herds are rotated to avoid herds being in bordering pastures. 
+
+During the winter, feeding cows works a bit differently. If there is snow on the ground then the cows can not eat the grass easily. We unroll dry hay bales or baleage for the cows to eat and lay on. This becomes an everyday chore during the winter because there is little to no grass available to the cows. We use bale beds that replace the stock bed of our farm trucks to unroll bales of hay.
 
